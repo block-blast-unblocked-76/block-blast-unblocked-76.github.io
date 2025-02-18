@@ -2,6 +2,10 @@
 
 👉 [Play Block Blast Unblocked](https://block-blast-unblocked-76.github.io/)
 
+**Alternative Site**
+
+👉 [Play Block Blast Unblocked](https://sites.google.com/view/block-blast-unblocked-76/)
+
 Welcome to **Block Blast Unblocked**, the ultimate puzzle game that challenges your strategic thinking and quick decision-making skills! Whether you're at school, work, or just looking for a fun way to pass the time, you can now play **Block Blast Unblocked** online for free without any restrictions.  
 
 ## 🎮 What is Block Blast Unblocked?  
